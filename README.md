@@ -25,7 +25,40 @@ selfish
 shit's serious when I stop competing
 tackling issues
 70% there
-crazy
+such a crazy motherfucker
+
+burning
+hot unique snappy
+stay fierce
+always sick of trying
+red
+selfish
+shit's serious when I stop competing
+tackling issues
+70% there
+crazy motherfucker
+
+burning
+hot unique snappy
+stay fierce
+always sick of trying
+red
+selfish
+shit's serious when I stop competing
+tackling issues
+70% there
+such a crazy motherfucker
+
+burning
+hot unique snappy
+stay fierce
+always sick of trying
+red
+selfish
+shit's serious when I stop competing
+tackling issues
+70% there
+crazy motherfucker
 
 ```
 
