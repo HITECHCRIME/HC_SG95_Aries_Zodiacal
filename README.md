@@ -1,6 +1,6 @@
 (cover) ![](57175019_319474918741616_8502199518755923887_n.jpg)
 
-# ARTIST - TITLE
+# MOTHNODE_ ZODIACAL (ARIES) + ALBUM BASED ON SIGNS - ESOTECHNIC (ESOTERIC)
 
 **Listen now:** x
 
@@ -16,7 +16,16 @@ Description.
 ## Lyrics
 
 ```
-
+burning
+hot unique snappy
+stay fierce
+always sick of trying
+red
+selfish
+shit's serious when I stop competing
+tackling issues
+70% there
+crazy
 
 ```
 
