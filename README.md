@@ -17,13 +17,18 @@ Description.
 ## Lyrics
 
 ```
+fire within fire
+within fire
+within within
+
 burning
 hot unique snappy
 stay fierce
 always sick of trying
 red
 selfish
-shit's serious when I stop competing
+shit's serious 
+when I stop competing
 tackling issues
 70% there
 such a crazy motherfucker
@@ -34,18 +39,25 @@ stay fierce
 always sick of trying
 red
 selfish
-shit's serious when I stop competing
+shit's serious 
+when I stop competing
 tackling issues
 70% there
 crazy motherfucker
 
+aye
+such a crazy motherfucker
+
+triangle within triangle
+
 burning
 hot unique snappy
 stay fierce
 always sick of trying
 red
 selfish
-shit's serious when I stop competing
+shit's serious 
+when I stop competing
 tackling issues
 70% there
 such a crazy motherfucker
@@ -56,7 +68,8 @@ stay fierce
 always sick of trying
 red
 selfish
-shit's serious when I stop competing
+shit's serious 
+when I stop competing
 tackling issues
 70% there
 crazy motherfucker
