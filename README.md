@@ -7,7 +7,7 @@ ALBUM BASED ON SIGNS - ESOTECHNIC (ESOTERIC)
 
 ## Project Data
 
-Description.
+@colverreber
 
 
 **Title:** x / **Featuring:** x
